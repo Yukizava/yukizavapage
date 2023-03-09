@@ -1,1 +1,1 @@
-# yukizavapage.github.io
+# yukizavapage
